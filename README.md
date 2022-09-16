@@ -3,8 +3,5 @@
 merhaba arkadaslar
 
 
-nasılsınız
+Ben bella
 
-
-
-dsfuaweofıjweopı
